@@ -1,5 +1,105 @@
-- 👋 Hi, I’m @Akee1441
-Cyber-security - 👀 I’m interested in ...
-AI ( Artificial Inteligence )- 🌱 I’m currently learning ...
-///////- 💞️ I’m looking to collaborate on ...
-telegram account only:@Akbar_ov- 📫 How to reach me ...
+
+GitHub
+Here's your GitHub launch code, @Akee1441!
+ 
+an octocat standing next to a rocket
+ Continue signing up for GitHub by entering the code below:
+ 
+ 
+GitHub
+Here's your GitHub launch code, @Akee1441!
+ 
+an octocat standing next to a rocket
+ Continue signing up for GitHub by entering the code below:
+ 
+ 
+GitHub
+Here's your GitHub launch code, @Akee1441!
+ 
+an octocat standing next to a rocket
+ Continue signing up for GitHub by entering the code below:
+ 
+ 
+GitHub
+Here's your GitHub launch code, @Akee1441!
+ 
+an octocat standing next to a rocket
+ Continue signing up for GitHub by entering the code below:
+ 
+ 
+GitHub
+Here's your GitHub launch code, @Akee1441!
+ 
+an octocat standing next to a rocket
+ Continue signing up for GitHub by entering the code below:
+ 
+ 
+GitHub
+Here's your GitHub launch code, @Akee1441!
+ 
+an octocat standing next to a rocket
+ Continue signing up for GitHub by entering the code below:
+ 
+ 
+GitHub
+Here's your GitHub launch code, @Akee1441!
+ 
+an octocat standing next to a rocket
+ Continue signing up for GitHub by entering the code below:
+ 
+ 
+GitHub
+Here's your GitHub launch code, @Akee1441!
+ 
+an octocat standing next to a rocket
+ Continue signing up for GitHub by entering the code below:
+ 
+ 
+GitHub
+Here's your GitHub launch code, @Akee1441!
+ 
+an octocat standing next to a rocket
+ Continue signing up for GitHub by entering the code below:
+ 
+ 
+GitHub
+Here's your GitHub launch code, @Akee1441!
+ 
+an octocat standing next to a rocket
+ Continue signing up for GitHub by entering the code below:
+ 
+ 
+GitHub
+Here's your GitHub launch code, @Akee1441!
+ 
+an octocat standing next to a rocket
+ Continue signing up for GitHub by entering the code below:
+ 
+ 
+GitHub
+Here's your GitHub launch code, @Akee1441!
+ 
+an octocat standing next to a rocket
+ Continue signing up for GitHub by entering the code below:
+ 
+ 
+GitHub
+Here's your GitHub launch code, @Akee1441!
+ 
+an octocat standing next to a rocket
+ Continue signing up for GitHub by entering the code below:
+ 
+ 
+GitHub
+Here's your GitHub launch code, @Akee1441!
+ 
+an octocat standing next to a rocket
+ Continue signing up for GitHub by entering the code below:
+ 
+ 
+GitHub
+Here's your GitHub launch code, @Akee1441!
+ 
+an octocat standing next to a rocket
+ Continue signing up for GitHub by entering the code below:
+ 
